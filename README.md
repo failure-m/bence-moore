@@ -6,7 +6,7 @@
 
 
 
-
+<div id="header" align="center">
 # about me
 
 failure\fay\anna, whatever u like! 
@@ -14,6 +14,7 @@ failure\fay\anna, whatever u like!
      i'd love to hear about your preferences and oc, but don't forget about me too.
 
 have a nice day!
+</div>
 
 
 
