@@ -9,10 +9,9 @@
 
 # about me
 
-          failure\fay\anna, whatever u like! 
-          i really miss socializing and havin friends to share things with or just hang out with 
-
-       i'd love to hear about your preferences and oc, but don't forget about me too.
+failure\fay\anna, whatever u like! 
+   i really miss socializing and havin friends to share things with or just hang out with 
+     i'd love to hear about your preferences and oc, but don't forget about me too.
 
 have a nice day!
 
